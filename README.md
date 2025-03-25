@@ -36,3 +36,4 @@ The recipe includes sourdough, but in case you don't have sourdough and don't in
 3. Perhaps it is easier if you go back to the video and watch here: [https://www.youtube.com/watch?v=7UB1saPQe-c&feature=youtu.be&t=950](https://www.youtube.com/watch?v=7UB1saPQe-c&feature=youtu.be&t=950)
 
 ## Sauce
+I usually use Mutti canned tomatoes. I chop two cloves of garlic and fry in a bit of olive oil before adding salt and pepper and then a can of tomatoes.
